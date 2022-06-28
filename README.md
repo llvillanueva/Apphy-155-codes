@@ -1,1 +1,1 @@
-Apphy155 codes discuss in Apphy 155 Thursday Lab 
+Apphy155 codes discussed in Apphy 155 Thursday Lab 
